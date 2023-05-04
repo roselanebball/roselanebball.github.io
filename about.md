@@ -12,4 +12,4 @@ Creating basketball memories in North Central Phoenix since 2013.
 
 ### Contact me
 
-[email@domain.com](mailto:rick1@gerkin.org)
+[Email to join](mailto:roselanebball@gerkin.org)
